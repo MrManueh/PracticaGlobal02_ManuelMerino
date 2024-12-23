@@ -1,0 +1,2 @@
+# PracticaGlobal02_ManuelMerino
+ 
